@@ -1,1 +1,1 @@
-[Tornado Cash](https://tornadocash.limo)
+[Tornado Cash](https://torn.cx)
